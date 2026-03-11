@@ -1,6 +1,8 @@
 ---
 source: lyrics
 ---
+
+
 He was only 14 when his father passed away
 He color his hair green and he started stay away
 From his family and friends, people on which he depends
@@ -45,6 +47,8 @@ I get so wasted ofc I think that I am the goat
 It's the last thing I remember, thought that I stayed afloat
 But I steered into an iceberg and I sank the boat
 
+
+
 What I see right now I'm this world
 Yeah, It's not like what I pictured
 Back when I was just a kid, sure
@@ -59,9 +63,13 @@ I'm so fucking disappointed that what I've seen is how it really is
 I'm not sure how to fix it, no I don't have the answer
 But I know we'll have to start now or we'll empty the dispenser
 
+
 Ending?
 Later it's gonna be to late to do anything about it
 Now we have a fighting chance, so lets do something about it huh
+
+
+
 
 I don't wanna be around this fucking shit no more
 Cuz every waking moment keeps on hurting to the core  

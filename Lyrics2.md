@@ -342,7 +342,7 @@ Just a spot here in this game 
 So many words I have to tame 
 I Hope this doesn't sound to lame 
 
-You know that little fucked smoking newports 
+You know that little fucker smoking newports 
 Could be the next motherfucker in a new Porsche 
 Cuz You never know who's gonna hit the jackpot 
 Me I'm just sitting here all day and smoking more pot 

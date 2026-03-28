@@ -203,6 +203,10 @@ So many more that I should mention but you know how shit goes)
 
 (So Don't step against the top, you never fuck with the boss )
 
+
+
+
+
 Everywhere the people are struggling and hustling just to get by
 and they will keep fighting on until the day they'll die
 all this while some have everything, yeah, more than they can buy
@@ -246,6 +250,9 @@ Instead of living life to the fullest and just play
 
 End of Jubilant day (Upbeat Lo-fi hip hop mix) k
 
+
+
+
 Feels like you're going mad but that's just all up in your head
 Still, you roll another one up and then stay all day in bed
 It's so sad to see, that all that you could be, will never be
@@ -269,6 +276,11 @@ Cuz when you care about something
 It's always better than nothing
 So don't give up on your own thing
 And get inspired by something
+
+
+
+
+
 
 I better you whether or not
 you think that I'm better or not
@@ -301,6 +313,10 @@ Crazy nights that never ends
 If you keep on climbing you will surely reach the top here
 If you love with your doing no reason you should stop there
 
+
+
+
+
 Winters back in Sweden are always too fucking freezing, yeah
 That's why you see me southbound, 
 Chilling in the sun now
@@ -308,9 +324,15 @@ Working on my sound now
 Rolling up a pound now 
 (Then) sippin' on a cold one, til we take another round now 
 
+
+
+
 Now I'm going up and I don't think I'm coming down
 Cuz We're vibing to this sound
 Now While we're breaking up a pound 
+
+
+
 
 Smoking up I'm getting higher 
 Fall asleep there right beside her 
@@ -322,10 +344,17 @@ With just some breaks so we can eat 
 We will never find defeat 
 If knocked down back up on the feet 
 
+
+
+
+
 I want some freedom and peace
 And protect my freedom of speech
 In a world that's free from disease
 And where we have freed up the seas
+
+
+
 
 I really hope we'll change things up here some day
 So I can see you so much more then just a Sunday
@@ -337,6 +366,9 @@ Or you wanna live the life you said one day I promise
 
 If you keep on fighting when you make it you'll be free
 Still hoping for the day when I can just be me
+
+
+
 
 They say you got to take it slow if you want to outlive it
 I say fuck it and just go all in with no limit
@@ -405,6 +437,10 @@ Pass it, pass it my way
 Keep rolling up hey
 Resin hash and high grade
 
+
+
+
+
 I've never been a popular guy
 was always shy 
 I was fucked before I can not deny
@@ -425,7 +461,15 @@ soon I will fly
 Now I'm standing strong, climbed so high
 I touch the sky
 
+
+
+
+
 Don't know what to do know, I'm on that high plane
+
+
+
+
 
 So I just keep on writing like planting a seed
 Waiting for it to grow so I roll up some weed
@@ -441,10 +485,14 @@ Still in bed, trying to find a roach to smoke wow
 Surprised that it's left, guess I must have passed out 
 I don't know what the fuck could have happened last night
 
+
 And there's a line that we forgot about last night
 Just need to get out of bed right 
 And get control of my head might 
 Be a little issue 
+
+
+
 
 \*Song tag\* loki productions - melodical beat 
 

@@ -16,10 +16,6 @@ I'm in a battle but I can not seem to win this fight. 
 So I get back on the bottle, just like every night
 Me and jack are on the bottom, we're not dying, right?
 
-Something about getting better, I forgot it... 😕
-
-Good idea to work with
-life goes on and I pretend
 
 Cuz I don't wanna be around this fucking shit no more
 When every waking moment keeps on hurting to the core 
@@ -27,6 +23,8 @@ I don't ever wanna feel like I have felt before
 No more fucking up and ending right back on the floor
 
 I wish that I could change things up, Go ahead and stop right now
+
+
 But my confidence is backing down, It's something that I'm lacking now
 
 Maybe I should roll up and keep flying high
@@ -63,3 +61,5 @@ knowing that my mind is not right, I fight
 
 Last night was so lonely
 got a bottle and kept pouring
+
+

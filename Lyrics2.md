@@ -28,6 +28,7 @@ And Fucking Bill Clinton
 Fucking anything with a clit on
 
 
+
 Feels like your going mad but that's just all up in your head
 Still you roll another one up and then stay all day in bed 
 It's so sad to see, that all that you could be,
@@ -49,7 +50,10 @@ We'll be delivering something 
 Cuz when we care about something 
 It's always better then nothing 
 So don't give up on your own thing 
-And get inspired by my thing 
+And get inspired by something 
+
+
+
 
 The light in the end keep on fighting til the end 
 
@@ -277,6 +281,10 @@ So give up if You're not trying 
 Mixing language up con español och lite svenska
 Vivo en españa men i sverige finns min hemstad 
 
+
+
+
+
 To me it's recreational and medical
 Not dependent on no chemical
 I'm not feeling like no criminal
@@ -307,6 +315,9 @@ Got no foe more it's all happy 
 No one flow more it's all trappy 
 
 With a lot of exceptions of course 
+
+
+
 
 Screaming viva españa
 while I'm puffing on some ganja 
@@ -465,6 +476,9 @@ And the People getting crazy when we fuck up the town
 So take this shit flip it upside down 
 Make it loud turning up the sound 
 
+
+
+
 I've been down on the hustle, puzzle life together
 from the crumbling pieces of a cake
 Now when everything's so fake 
@@ -519,6 +533,8 @@ With a dick in your ass
 you make all your cash
 You're trying to stash
 but it's gone in a flash
+
+
 
 Everywhere the people struggling and hustling just to get by
 and they will keep fighting on until the day they'll die
@@ -619,25 +635,35 @@ no, I am still searching
 I never really take the time think my feelings through
 but when I do I realise that I am missning all of you
 
+
+
+
+
 Vad är meningen med skiten? bara sitta här och skriva?
 Vänta på nått bättre, sätta på en annan skiva.
 Det kanske en dag kommer men varför bara vänta?
-Spring och uppfylla dina drömmar nu, nej ja bara skämta.
+Spring och uppfyll dina drömmar nu, nej ja bara skämta.
 Ingen ide att tipsa du kommer ändå bara dissa.
 Springa runt ditt hörn och köpa en till pizza.
-lr chilla i din soffa med spliffen mellan fingrarna
+Eller chilla i din soffa med spliffen mellan fingrarna
 poppa en till valle och njuta utav filmerna
-Samma sak varje dag, ska inte säga ja är väll mkt bättre
+Samma sak varje dag, ska inte säga ja är mycket bättre
 Har dock börjat min resa och hoppas den blir ännu bättre
 Jag har lämnat mitt hemland men vill fortsätta min vandring söder.
 nu tillbaks i värmland för att säga hej till mina bröder.
 Hoppas nån vill joina my quest to find a better place.
-lr ja kanske borde stanna, get back into this fucking maze
+Eller ja kanske borde stanna, get back into this fucking maze
 Nej aldrig mera fastna bara fortsätta att springa framåt
 Så långt jag bara kan, aldrig stanna till och kolla bakåt.
 
+
+
+
 Now I'm back in sweden trying out this thing that they call rapping.
 Really hope that this goes well cuz otherwise I'm back to fapping
+
+
+
 
 Landlord bitch tried to reach me but didn't try to call me,
 e-mail my HR draged them in tryed to score the
@@ -748,6 +774,9 @@ every time the music's hittin'.
 That doesn't look alright but then looks can be deceiving.
 No, I don't want to fight, so just step it down start leaving.
 
+
+
+
 It all started in a village back in Sweden some time ago
 Today that place still feels like a stagnant status quo
 Lived there for 20 long years, some times where unforgiving.
@@ -774,7 +803,7 @@ And It wasn't long before I was part of that same scene
 Chilling out on my couch and just looping that routine
 
 Then the pills started rolling in
-The lines they had a twin
+The lines they always had a twin
 the hairs are standing on my skin
 and I guess this is the best I've been
 

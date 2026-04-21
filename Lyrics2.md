@@ -43,11 +43,11 @@ No one will do this shit for you
 So you gotta keep on fighting bro
 You're stronger then you think, I know 
 
-If we're believing in something
-Then we'll be living for something 
-And we'll keep building on something 
-We'll be delivering something 
-Cuz when we care about something 
+If you're believing in something
+Then you'll be living for something 
+And you'll keep building on something 
+You'll be delivering something 
+Cuz when you care about something 
 It's always better then nothing 
 So don't give up on your own thing 
 And get inspired by something 

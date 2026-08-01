@@ -59,6 +59,9 @@ The light in the end keep on fighting til the end 
 
 Open up that Morgan pop a coke can do some cocaine
 
+
+
+
 Growing older, whatever 
 I'm getting stronger then ever 
 Never have I felt so clever 

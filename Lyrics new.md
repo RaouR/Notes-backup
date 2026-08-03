@@ -5,11 +5,11 @@ source: lyrics
 
 He was only 14 when his father passed away
 He color his hair green and he started stay away
-From his family and friends, people on which he depends
+From his family and friends, people on whom he depends
 He discovered a new scene with completely new demands
 
 That's when things started escalating
-He was feeling kind of down so he asked the lady / He was down on his feelings so he asked the lady
+He was feeling kind of down so he asked the lady
 Have you got something stronger you can pass already
 I am sick of getting drunk and just pass out lately
 
